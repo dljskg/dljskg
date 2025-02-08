@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=dljskg)
 
-ㅤㅤㅤㅤㅤㅤㅤ
+
 [draw on strawpage](https://irlshadowthehedgehog.straw.page/)
 
 <!---
